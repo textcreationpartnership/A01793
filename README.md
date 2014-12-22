@@ -35,9 +35,20 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A mastif vvhelp and other ruff-island-lik currs fetcht from amongst the Antipedes Which bite and bar
+
+1. To my very loving Frends, GF. RN.
+WS. RG. IF. IG. Gentlemen of the
+Innee Temple.
+
+1. TO THE READER.
+
 #####Body#####
-A mastif vvhelp and other ruff-island-lik currs fetcht from amongst the Antipedes Which bite and bar
+
+1. The Mastiffe Whelpe.
+
+1. DOGGES FROM
+THE Antippedes.
+
 **Types of content**
 
   * There are 1678 **verse** lines!
